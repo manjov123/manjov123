@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I’m currently working on Dallas crime statistics project. <br> I’m looking to collaborate on people around Dallas. <br> <br>
+I’m currently working on Dallas crime statistics project. <br> I’m looking to collaborate with people around Dallas. <br> <br>
 
 
 ## 🌐 Socials:
